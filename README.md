@@ -1,3 +1,5 @@
+![Preview Image](R.jpg)
+
 Spotify Premium for free 2024
 Tip
 
